@@ -1,0 +1,1 @@
+# mterminal_2go_privacy_policy
